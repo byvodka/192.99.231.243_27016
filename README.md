@@ -1,1 +1,1 @@
-# 192.99.231.243_27016
+Escanor é pilantra safado
